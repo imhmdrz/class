@@ -9,6 +9,7 @@ id instagram mn: [id](https://instagram.com/imhmdrz)
 
 id telegram mn: [id](https://t.me/imhmdrzs)
 
+
 ### ahdaf
 - doos darm narm afzar haye mokhtalef barname nevisio yad bgirm
 - doos darm ye sherkat pc bozorg bznm
@@ -16,6 +17,8 @@ id telegram mn: [id](https://t.me/imhmdrzs)
 - doos darm ye beat saz khoob bshm
 - doos darm zabanmo qavi knm
 ---
+
+
 ### mahart ha
 - khoob naqashi entezaii mikshm
 - footbal khoob bazi miknm
@@ -23,7 +26,10 @@ id telegram mn: [id](https://t.me/imhmdrzs)
 - ax khoob edit miknm
 - cover ahang miznm
 ---
+
+
 ![axe man](https://8pic.ir/uploads/PicsArt-02-05-02-40-51.png)
+
 
 ### alayeq man
 - film didn : (interstelar-mr.nobody.inception)
