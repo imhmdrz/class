@@ -31,4 +31,4 @@ id telegram mn: [id](https://t.me/imhmdrzs)
 - safar
 - game
 - ...
----
+
